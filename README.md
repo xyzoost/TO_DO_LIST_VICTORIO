@@ -87,8 +87,8 @@ https://github.com/user-attachments/assets/bfebcdd0-636b-48da-88a1-4ec5a9037a99
 
 ## Identitas Pembuat
 
-Nama: Bambang Hokito
+Nama: VICTORIO GALIH NUGROHO
 Kelas: XI RPL 2
-Absen: 06
+Absen: 32
 
 ---
