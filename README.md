@@ -78,7 +78,7 @@ Berikut adalah demo singkat penggunaan aplikasi:
 
 
 
-https://github.com/user-attachments/assets/bfebcdd0-636b-48da-88a1-4ec5a9037a99
+https://jmp.sh/s/QhSYvlOGYPcR7fmVVnco
 
 
 
